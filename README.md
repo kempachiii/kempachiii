@@ -1,4 +1,4 @@
-oi meu nome é mari e sou aluna de pensamento computacional e escuto sigilkore llllllhfvtgfjhyjjbhh🤓
+oi sou a mari e sou aluna de pensamento computacional fds llllllhfvtgfjhyjjbhh🤓
 
 ig @marr_mayerudx
 
