@@ -1,4 +1,4 @@
-oi sou a mari e sou aluna de pensamento computacional fds llllllhfvtgfjhyjjbhh🤓
+bosta merda cala boca
 
 ig @marr_mayerudx
 
